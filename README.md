@@ -1,7 +1,6 @@
 # Splash Logo Pemograman Mobile
 
-![Screenshot (1065)](https://github.com/FsBagaskorooooo/Splash-Logo_PemogramanMobile/assets/130354090/fb2cf579-c6ba-4cdf-8f5c-340c6a6271c4)
-
+![Screenshot (1065)](https://github.com/FsBagaskorooooo/Splash_Logo_PemogramanMobile/assets/130354090/3f3c9f2b-f478-4d3f-9639-a2a6d9f418e6)
 
 Untuk Videonya Bisa Dilihat di Link dibawah
 
